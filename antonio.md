@@ -17,4 +17,5 @@ Ingredients:
 ## Preparation:
 
 Place all the ingredients, except for the Angostura Bitters, in the order listed above in a cocktail shaker. Shake for 15 seconds. Strain and serve in a chilled, 8 oz. cocktail glass. Decorate the top with 3 drops of Angostura Bitters.
+
 ![alt text](image.png)
