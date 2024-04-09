@@ -1,6 +1,6 @@
 # Drink: Pisco Sour (serves 4 people)
 
-Ingredients:
+## Ingredients:
 
 - 4 measures of pure Peruvian Pisco (Acholado)
 
