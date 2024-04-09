@@ -20,5 +20,5 @@ Ofen auf 180 Grad Ober-/Unterhitze (Umluft: 160 Grad) vorheizen. Ein kleines Ble
 
 Brownies im vorgeheizten Ofen ca. 25-30 Min. backen. Mit einem Zahnstocher prüfen, ob die Brownies fertig sind. Es sollten noch einige feuchte Krümel am Zahnstocher hängen bleiben, damit die Brownies noch schön saftig sind. Brownies vollständig auskühlen lassen.
 
-Restliche Zartbitterschokolade grob hacken und ebenfalls im Wasserbad schmelzen. Mit einem Löffel flüssige Zartbitterschokolade in Streifen über die Brownies ziehen. Schokolade anziehen lassen, dann die Brownies mit einem heißen Messer in Stücke schneiden. Das Rezept ergibt ca. 12 Stücke. Die Brownies können luftdicht verpackt ca. 3-4 Tage aufbewahrt werden - falls sie nicht vorher aufgegessen sind :) 
+Restliche Zartbitterschokolade grob hacken und ebenfalls im Wasserbad schmelzen. Mit einem Löffel flüssige Zartbitterschokolade in Streifen über die Brownies ziehen. Schokolade anziehen lassen, dann die Brownies mit einem heißen Messer in Stücke schneiden. Das Rezept ergibt ca. 12 Stücke. Die Brownies können luftdicht verpackt ca. 3-4 Tage aufbewahrt werden - falls sie nicht vorher aufgegessen sind!
 
