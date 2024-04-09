@@ -2,6 +2,10 @@ Hallo ich bin Manfred.
 
 Hier ein leckeres Rezept:
 
+# Spaghetti Bolognese
+
+! [img](https://img.chefkoch-cdn.de/rezepte/393031127655461/bilder/831054/crop-642x428/spaghetti-bolognese.jpg)
+
 1	Zwiebel(n)
 1 Zehe/n	Knoblauch
 1	Möhre(n)
