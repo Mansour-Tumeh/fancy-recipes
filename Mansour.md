@@ -10,3 +10,5 @@
 1 Esslöffel Zitronensaft
 1 Teelöffel gemahlener Zimt
 1 Teelöffel Vanilleextrakt
+
+# Anmerkung von André : -> Dazu passt super [Whiskey-Sour](./andre.md)
