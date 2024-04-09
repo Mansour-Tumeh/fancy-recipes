@@ -1,4 +1,3 @@
-Hallo!
 Hier ist ein Grundrezept für kleines Kuchen, das ich gerne benutze (so oft dass ich es aus dem Kopf weiß). Zutaten sind folgendes: 
 - 125g Zucker
 - 125g Butter
