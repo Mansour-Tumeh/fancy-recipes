@@ -22,3 +22,5 @@ Brownies im vorgeheizten Ofen ca. 25-30 Min. backen. Mit einem Zahnstocher prüf
 
 Restliche Zartbitterschokolade grob hacken und ebenfalls im Wasserbad schmelzen. Mit einem Löffel flüssige Zartbitterschokolade in Streifen über die Brownies ziehen. Schokolade anziehen lassen, dann die Brownies mit einem heißen Messer in Stücke schneiden. Das Rezept ergibt ca. 12 Stücke. Die Brownies können luftdicht verpackt ca. 3-4 Tage aufbewahrt werden - falls sie nicht vorher aufgegessen sind!
 
+
+
